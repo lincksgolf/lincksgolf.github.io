@@ -1,0 +1,1 @@
+# lincksgolf.github.io
